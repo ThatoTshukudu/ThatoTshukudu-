@@ -1,4 +1,4 @@
-# ThatoTshukudu- # 💫 About Me:
+# 💫 About Me:
 I'm currently looking for employment.<br>I'm looking to work with a team who are working on creating exciting software.<br>I'm a creative thinker and a good problem solver, especially when under pressure.<br>I'm a hard worker who sees that his deadlines are met on time and make sure to give quality work<br>Honesty and consistency are my core principles.
 
 
